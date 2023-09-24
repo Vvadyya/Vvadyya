@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vvadyya
 - 👀 I’m new member on github
 - 🌱 07line 
-- 💞️ looking for sm1 who can teach me
+- 🔥 looking for sm1 who can teach me
 - 📫 let's study together
 
 <!---
